@@ -13,7 +13,7 @@ If you have stumbled here and dont know either of us.
 
 I am Sean, I work as an SAP contractor I went self employed at the start of 2019 mostly so I had the opportunity to travel and see some more of the world, there are only so many holidays to Manchester one couple can take.
 
-My partner is Monica, she runs a small popup kitchen here in Bristol specialising in traditional Gujarati streetfood. [@NaastoBaasto](www.twitter.com/NaastoBaasto), she will be providing the majority of our images.  
+My partner is Monica, she runs a small popup kitchen here in Bristol specialising in traditional Gujarati streetfood. [@NaastoBaasto](https://www.twitter.com/NaastoBaasto), she will be providing the majority of our images.  
 
 ### Contact Us
 

@@ -3,6 +3,10 @@ layout: post
 title: A Late Arrival
 ---
 
+
+I hate travel days, something about them just puts me on edge, I panic and my usual calm demeanor goes straight out of the window. I become short and snappy. Monica bares the brunt of this! I also hate change, if something is planned for weeks in my head. Anyway just thought you might need some back ground before I continue...
+
+
 ## Flying and Stop-overs.
 
 
